@@ -50,5 +50,5 @@
   
  ✌️ &emsp; Enjoy to do programming and sharing knowledge <br/><br/>
  ❤️ &emsp; Love to writing code and learning new features<br/><br/>
- 📧 &emsp; Reach me anytime: niyomarfa22@gmail.com<br/><br/>
+ 📧 &emsp; Reach me anytime: https://twitter.com/mr_niyo<br/><br/>
  💬 &emsp; Ask me about anything [here](https://github.com/niyo22)
